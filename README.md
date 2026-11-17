@@ -8,7 +8,7 @@ Welcome to my page &lt;3
 
 ｡ﾟ•  ｡ﾟ17 yrs 10/21/08｡ﾟ•  ｡ﾟ
 
-⋆⊱⋆Religion:Buddhist⋆⊰⋆
+⋆⊱⋆Witchcraft⋆⊰⋆
 
 ᴘᴏʟɪᴛɪᴄᴀʟ ᴠɪᴇᴡ: Leftist 
 
